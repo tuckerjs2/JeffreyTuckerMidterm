@@ -1,0 +1,2 @@
+# JeffreyTuckerMidterm
+Jeffrey Tucker Midterm
